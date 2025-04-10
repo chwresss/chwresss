@@ -27,4 +27,4 @@ N’hésite pas à m'ecrire ici!
 
 ---
 
-🛠️ Je suis encore en train d’apprendre, le but c'est de ne plus être un moldu 🚀
+🛠️ Je suis encore en train d’apprendre, l'objectif c'est de ne plus être un moldu 🚀
